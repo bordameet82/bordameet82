@@ -1,4 +1,4 @@
-## Hola, I'm [Pawan Kumar!](https://pawan.live) 👋
+## Hola, I'm [Meet Borda!](https://pawan.live) 👋
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=iampawan&label=Views&color=blue&style=plastic" alt="iampawan" /> </p>
 
